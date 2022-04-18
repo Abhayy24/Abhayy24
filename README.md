@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Abhayy24
-- 👀 I’m interested in money
+- 👀 I’m interested in finances 
 - 🌱 I’m currently learning api
 - 💞️ I’m looking to collaborate on consultancy 
 - 📫 How to reach me abhaysoni2492@gmail.com
